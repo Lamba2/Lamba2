@@ -1,5 +1,4 @@
-- 👋 Hi, I’m @monkeslover420
-- 👀 I’m interested in Bloons,Horror Games and 
-- 🌱 I’m currently trying to make a btd6 mod
-- 💞️ I’m looking to play modded btd6
-- 📫 How to reach me:contact me on discord tag:I love monkes#4862
+- 👋 Hi, I’m @Lamba2
+- 👀 I’m interested in Cult of the lamb,horror games,roblox 
+- 🌱 I’m currently just doing random stuff
+- 📫 How to reach me:contact me on discord tag:i love lamba#4862
